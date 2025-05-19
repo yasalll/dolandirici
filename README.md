@@ -1,0 +1,2 @@
+# dolandirici
+Fedlan Kılıçaslan Dolandırıcıdır
